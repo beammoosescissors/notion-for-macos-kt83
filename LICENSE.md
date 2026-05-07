@@ -1,4 +1,4 @@
-
+Notion for macOS rare Extension - offline access and collaboration is the best Notion for macOS extension, featuring offline access and collaboration. Safe, efficient, and
 
 
 
